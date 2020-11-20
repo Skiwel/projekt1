@@ -1,2 +1,0 @@
-# projekt1
-obrazki
